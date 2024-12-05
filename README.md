@@ -2,7 +2,7 @@
 - 👀 I’m interested in Psychology!
 - 🌱 I’m currently learning computational modeling
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me apittman9@uco.edu
+- 📫 How to reach me apittman9@uco.edu---- https://youtu.be/TrUAkJT6GYk
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Australia is wider than the moon!
 
